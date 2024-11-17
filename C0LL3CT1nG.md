@@ -1,11 +1,6 @@
 # LUUULLL H04RD B04rD bR4HH !1!!!
 
-![rainbow divider](https://64.media.tumblr.com/8df7abbb56f93a078fdd1d6c2b496692/ce72aa168f527984-29/s1280x1920/495b5f14d409ad59288a562e5d5df99da944a353.jpg)
 
-![pest](https://i.imgur.com/1Wo4MZY.png?2)![split](https://i.imgur.com/bwIC9wj.png?4)![pilby](https://i.imgur.com/TAXnNNK.png?3)
-![spud](https://i.imgur.com/Yw4a1te.png?1)![prototype](https://i.imgur.com/AwlwoKH.png?3)
-![infected](https://i.imgur.com/ofzT4Sl.png?1)![unpleasant](https://i.imgur.com/4jEvhne.png?1)
-![scag](https://i.imgur.com/MddKEsi.png?2)![skaterlight](https://i.imgur.com/NxJ1ZlC.png?1)![gregoriah](https://i.imgur.com/zRA8VPG.png?2)
-![prototype 2](https://i.imgur.com/SFCHf4c.png?1)![infected 2](https://i.imgur.com/wrN3KgI.png?2)
-
-![rainbow divider](https://64.media.tumblr.com/8df7abbb56f93a078fdd1d6c2b496692/ce72aa168f527984-29/s1280x1920/495b5f14d409ad59288a562e5d5df99da944a353.jpg)
+![pest](https://files.catbox.moe/jp9iya.webp)![split](https://files.catbox.moe/ddjouw.webp)![folly](https://files.catbox.moe/5bklz0.webp)![pilby](https://files.catbox.moe/xpp8et.webp)![spud](https://files.catbox.moe/gx01vs.webp)![prototype](https://files.catbox.moe/yv3cxj.webp)
+![infected](https://files.catbox.moe/xjhnzw.webp)![mannequin mark](https://files.catbox.moe/u5icia.webp)![unpleasant](https://files.catbox.moe/9rselc.png)
+![scag](https://files.catbox.moe/yua110.png)![skaterlight](https://files.catbox.moe/g6y1wi.png)![barkbeetle](https://files.catbox.moe/ziozlj.png)![gregoriah](https://files.catbox.moe/r7hm42.png)![prototype 2](https://files.catbox.moe/0uf5fd.png)![infected 2](https://files.catbox.moe/txs0gy.png)![flesh cousin](https://files.catbox.moe/p8f5dh.png)![blue knight](https://files.catbox.moe/nmq38e.png)![green knight](https://files.catbox.moe/sl9dwt.png)![orange knight](https://files.catbox.moe/nnjboa.png)![red knight](https://files.catbox.moe/akff3r.png)![meee](https://files.catbox.moe/15bi06.webp)![winnie](https://files.catbox.moe/x4i5mh.webp)![bok-su](https://files.catbox.moe/43gnc7.webp)![da-jeong](https://files.catbox.moe/wxcphu.webp)![protag](https://files.catbox.moe/52dr2m.webp)![coworker](https://files.catbox.moe/cs6iq8.webp)![rody](https://files.catbox.moe/a0kw97.webp)![vincent](https://files.catbox.moe/jdwnwp.webp)![angelica](https://files.catbox.moe/fez4kg.webp)![forcas](https://files.catbox.moe/qy8y8d.webp)![augwin](https://files.catbox.moe/ejoo2j.png)![toya sanrio](https://files.catbox.moe/nrrqe5.png)![lee and clem](https://files.catbox.moe/k4idj8.png)![lee](https://files.catbox.moe/ngy4qi.webp)![clementine](https://files.catbox.moe/0iqgrb.webp)![luka](https://files.catbox.moe/1dl9jo.webp)![ivantill](https://files.catbox.moe/vc6bzj.webp)![sodapack](https://files.catbox.moe/yc28n4.webp)![liam](https://files.catbox.moe/nu1z9l.webp)![meee](https://files.catbox.moe/0zo99z.webp)
