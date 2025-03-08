@@ -1,4 +1,7 @@
 <p align="center">
+<![](https://komarev.com/ghpvc/?username=skaterbeetle&color=4055aa)>
+
+<p align="center">
 <img src= "https://files.catbox.moe/clj23p.png">
 
 
