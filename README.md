@@ -1,10 +1,12 @@
+![](https://komarev.com/ghpvc/?username=skaterbeetle&color=4055aa&label=loserrz+viewing+>.<&abbreviated=true)                                   <sup>' don't get so fidgety!    you're always looking all over the place! "</sup>                
 <p align="center">
-<![](https://komarev.com/ghpvc/?username=skaterbeetle&color=4055aa)>
+<img src= "https://files.catbox.moe/osgztg.png">
+</p>
+
 
 <p align="center">
-<img src= "https://files.catbox.moe/clj23p.png">
-
-
+<a href="https://rentry.co/sk8erbeetle" rel="nofollow">rentry</a>            <a href="https://skaterbeetle.atabook.org" rel="nofollow">atabook</a>            <a href="https://spacehey.com/mafutouya" rel="nofollow">spacehey</a>            <a href="https://pronouns.cc/@mafutouya" rel="nofollow">pronounscc</a>
+</p>
 <p align="center">
-🟢 : ontab / welcome to chat , ⛔ : most likely ontab but may be afk , 🌙 : afk / offtab but cudds r still welcome  !
+<img src= "https://files.catbox.moe/fshl1e.png"> <img src= "https://files.catbox.moe/4l1jig.png">
 </p>
